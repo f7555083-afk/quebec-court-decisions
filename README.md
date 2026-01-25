@@ -1,6 +1,6 @@
 # Public Domain Quebec Superior Court Judgments – 9277-0346 Québec Inc
 
-🔗 Version française : https://github.com/YOUR-USERNAME/decisions-judiciaires-quebec
+🔗 Version française : https://github.com/f7555083-afk/decisions-judiciaires-quebec
 
 This repository references several public domain judicial decisions from the Quebec Superior Court involving **9277-0346 Québec Inc**.
 
