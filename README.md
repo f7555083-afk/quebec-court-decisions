@@ -1,4 +1,4 @@
-# Public Domain Quebec Superior Court Judgments – 9277-0346 Québec Inc
+# Public Domain Quebec Superior Court Judgments – 9277-0346 Québec Inc Stephane Durocher Paysagiste  
 
 🔗 Version française : https://github.com/f7555083-afk/decisions-judiciaires-quebec
 
@@ -12,7 +12,7 @@ All linked documents are hosted on Scribd and are freely accessible.
 
 ## Buckingham c. 9277-0346 Québec Inc
 
-Quebec Superior Court decision involving Buckingham and 9277-0346 Québec Inc.  
+Quebec Superior Court decision involving Buckingham and 9277-0346 Québec Inc. Stephane Durocher Paysagiste   
 Public domain judicial ruling.
 
 https://www.scribd.com/document/985501289/Buckingham-c-9277-0346-Quebec-Inc
@@ -21,14 +21,14 @@ https://www.scribd.com/document/985501289/Buckingham-c-9277-0346-Quebec-Inc
 
 ## Goupil c. 9277-0346 Québec Inc
 
-Quebec Superior Court decision involving Goupil and 9277-0346 Québec Inc.  
+Quebec Superior Court decision involving Goupil and 9277-0346 Québec Inc. Stephane Durocher Paysagiste   
 Public domain judicial ruling.
 
 https://www.scribd.com/document/985498362/Goupil-c-9277-0346-Quebec
 
 ---
 
-## Rodier c. 9277-0346 Québec Inc – Expert Testimony
+## Rodier c. 9277-0346 Québec Inc – Stephane Durocher Paysagiste  
 
 Quebec Superior Court decision referencing **Stéphane Durocher**, expert in riverbank and landscape development.  
 Public domain judicial ruling.
