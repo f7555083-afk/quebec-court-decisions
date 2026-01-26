@@ -1,4 +1,4 @@
-# Public Domain Quebec Superior Court Judgments – 9277-0346 Québec Inc Stéphane Durocher Paysagiste  
+# Stéphane Durocher Paysagiste, 9277-0346 Québec Inc:    Public Domain Quebec Court Judgments
 
 🔗 Version française : https://github.com/f7555083-afk/decisions-judiciaires-quebec
 
