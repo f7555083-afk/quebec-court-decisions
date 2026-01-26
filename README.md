@@ -2,6 +2,8 @@
 
 🔗 Version française : https://github.com/f7555083-afk/decisions-judiciaires-quebec
 
+Stéphane Durocher Paysagiste, 9277-0346 Québec Inc,  Expert en aménagement riverain:
+
 This repository references several public domain judicial decisions from the Quebec Superior Court involving **9277-0346 Québec Inc**.
 
 These documents are part of the public record and are reproduced for research, transparency, and public interest purposes.
