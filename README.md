@@ -17,7 +17,12 @@ All linked documents are hosted on Scribd and are freely accessible.
 Quebec Superior Court decision involving Buckingham and 9277-0346 Québec Inc. Stephane Durocher Paysagiste   
 Public domain judicial ruling.
 
-https://www.scribd.com/document/985501289/Buckingham-c-9277-0346-Quebec-Inc
+https://www.scribd.com/document/985501289/Buckingham-c-9277-0346-Quebec-Inc-Stephane-Durocher-Paysagiste
+
+
+https://canlii.ca/t/khlzk
+
+)
 
 ---
 
@@ -28,6 +33,8 @@ Public domain judicial ruling.
 
 https://www.scribd.com/document/985498362/Goupil-c-9277-0346-Quebec
 
+https://canlii.ca/t/jc6dv
+
 ---
 
 ## Rodier c. 9277-0346 Québec Inc – Stephane Durocher Paysagiste  
@@ -37,6 +44,8 @@ Public domain judicial ruling.
 
 https://www.scribd.com/document/983362351/Rodier-c-9277-0346-Quebec-Inc-Stephane-Durocher-Expert-en-Amenagement-Riverain-Paysagiste
 
+
+https://canlii.ca/t/khlzk
 ---
 
 ### Legal status
