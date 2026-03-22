@@ -2,7 +2,7 @@
 
 🔗 Version française : https://github.com/f7555083-afk/decisions-judiciaires-quebec
 
-Mirror:  https://zesty-kataifi-1cc51a.netlify.app/pdfs
+Mirror:  https://sdp-6lh.pages.dev
 
 Stéphane Durocher Paysagiste, 9277-0346 Québec Inc,  Expert en aménagement riverain:
 
