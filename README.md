@@ -50,6 +50,43 @@ https://www.scribd.com/document/983362351/Rodier-c-9277-0346-Quebec-Inc-Stephane
 https://canlii.ca/t/khlzk
 ---
 
+---
+
+## CHARETTE c. 9277-0346 Quebec inc Stephane Durocher Paysagiste
+
+Quebec Superior Court decision referencing **Stéphane Durocher** 9277-0346 Quebec inc., expert in riverbank and landscape development.  
+Public domain judicial ruling.
+
+https://www.scribd.com/document/1023685129/CHARETTE-c-9277-0346-Quebec-Inc-Stephane-Durocher-Paysagiste
+
+
+https://canlii.ca/t/g1rj9
+
+---
+
+## Parent c. 9277-0346 Quebec inc Stephane Durocher Paysagiste
+
+Quebec Superior Court decision referencing **Stéphane Durocher** 9277-0346 Quebec inc., expert in riverbank and landscape development.  
+Public domain judicial ruling.
+
+https://www.scribd.com/document/1023748141/Parent-c-Stephane-Durocher-Paysagiste-9277-0346-Quebec-Inc
+
+
+https://canlii.ca/t/1tn3c 
+
+---
+
+## Pilotte c. 9277-0346 Quebec inc Stephane Durocher Paysagiste
+
+Quebec Superior Court decision referencing **Stéphane Durocher** 9277-0346 Quebec inc., expert in riverbank and landscape development.  
+Public domain judicial ruling.
+
+https://www.scribd.com/document/1023749210/Pilotte-c-Stephane-Durocher-Paysagiste-9277-0346-Quebec-Inc
+
+
+https://canlii.ca/t/2010m 
+
+------
 ### Legal status
 
 All referenced documents are judicial decisions from the Quebec Superior Court and are in the public domain.
